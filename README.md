@@ -1,1 +1,0 @@
-# jirayut024.github.io
